@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ompathaK06
 - 🌱 I’m currently learning programming
-- 📫 contact : pathakom6306@gmail.com
+- 📫 contact : connectompathak@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: omw to be the greatest programmer ever lived
 
